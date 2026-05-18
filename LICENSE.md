@@ -1,4 +1,4 @@
-#  
+#  No-Ban brainrot evolution scripts is the best brainrot evolution scripts with teleport and auto-upgrade. Safe, reliable, and optimized for maximum performance.
 
 
 
